@@ -4,6 +4,6 @@ Resumo.
 
 ## Introducción
 
-### Denji
+### Mestre Mutenroi
 
-O home motoserra
+O mestre de Son Goku
