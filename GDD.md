@@ -4,6 +4,6 @@ Resumo.
 
 ## Introducción
 
-### Dr Slump
+### Mestre Mutenroi
 
-O creador de Arale
+O mestre de Son Goku
